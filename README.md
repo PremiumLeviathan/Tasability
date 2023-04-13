@@ -1,3 +1,4 @@
 # Tasability
 ALL SCRIPT CREDITS GO TO ObbyBoi435#6689
 IF ANY DEVS ARE READING THIS AND WANT IT TAKEN DOWN THEN DM PremiumLeviathan#6946 AND LET ME KNOW ASAP
+Tasability Discord: https://discord.gg/NAT72ysj
